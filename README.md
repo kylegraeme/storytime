@@ -4,3 +4,4 @@ Ramon didn't know that Rob and Rocco were the masterminds behind this act.
 One fateful night he came across the same vile possums that killed his precious parrot. 
 They stared deeply into eachother's eyes and thought, "Wait!".
 - Let's hunt a sad panda ..!
+So the possum and Ramon went to Rob and Rocco's to seek revenge.
