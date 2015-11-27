@@ -5,3 +5,4 @@ One fateful night he came across the same vile possums that killed his precious 
 They stared deeply into eachother's eyes and thought, "Wait!".
 - Let's hunt a sad panda ..!
 So the possum and Ramon went to Rob and Rocco's to seek revenge.
+A gruesome and bloody fight ensued between the possums and the three George Brown instructors. 
